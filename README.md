@@ -1,1 +1,4 @@
-# Aula-2702
+# Aula-2702: Campanha de Fevereiro
+A mentalidade fixa evita os desafios da vida e tende a rejeitar mudanças, já a mentalidade de crescimento obseva as diversas vivências que tem e as utiliza como aprendizado, e tem mais facilidade em se adaptar a elas. Não sei dizer certamente qual a minha postura sobre isso, mas gosto de mudanças, porém em algumas ocasiões tenho muito medo e acabo nem tentando.\
+As pessoas sempre tendem a se questionar sobre sua vida, proposito e capacidade, sempre duvidando delas mesmas independente da idade.\
+Na vida temos muitos desafios e momentos de reflexão, que temos que enfrentar e aprender com essas vivências e levar os erros com ganho de conhecimentos, muitas vezes fazemos escolhas tanto ruins quanto boas, mas indepenteste delas devemos aprender com elas pra tentarmos fazer sempre o bem para o próximo e nos mesmos.
